@@ -2,6 +2,8 @@
 
 ![](qrcode.png)
 ![](tshirt.jpg)
+![](SHIRT-SIGNS-QRCODES.jpg)
+![](SHIRT-SIGNS.jpg)
  
  THE BRAND IS RAINBOW AND GOOGLEY EYES ON A BLACK BACKGROUND! 
  
